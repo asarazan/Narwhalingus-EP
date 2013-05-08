@@ -1,4 +1,5 @@
 WEBSITE: http://thebristol7s.wordpress.com/
+
 ALSO AT: http://soundcloud.com/aaron-sarazan/sets/narwhalingus-ep#
 
 As the birth of A.J.'s daughter approached, the Bristol 7's knew that they had to record an album. Otherwise... well, I guess there really isn't an otherwise. They just knew they had to record an album because it would be a TOTALLY BOSS thing to do.
@@ -14,6 +15,5 @@ Copyright 2011 The Bristol 7's
 All songs written and performed by A.J. Hall and Aaron Sarazan
 
 Recorded by Patrick Blackburn in Durham, NC
-
 
 More info in LICENSE
